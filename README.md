@@ -1,1 +1,3 @@
-# Search1sseo2
+5 tips for increasing your article's search engine discoverability · 1. Create a search engine friendly title · 2. Optimize your abstract · 3. Use keywords ...    
+
+https://spt731.weebly.com
